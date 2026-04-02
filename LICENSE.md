@@ -1,4 +1,4 @@
-
+Free best Scripts for dig deeper - auto-dig and inf-depth brings you the best free scripts for dig deeper, featuring auto-dig and inf-depth. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
